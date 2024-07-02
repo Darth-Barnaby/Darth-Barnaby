@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... how to legally start my own micronation (no luck so far)
 - 💞️ I’m looking to collaborate on ... any project that can restart my will to live 
 - 📫 How to reach me ... idk i dont think anyone would wanna do that
-- 😄 Pronouns: ... *inhale* Schwerer Panzerspähwagen 7.5 cm Sonderkraftfahrzeug 234/4 Panzerabwehrkanonenwagen
+- 😄 Pronouns: ... I identify as speed. (cus i wanna fucking Km/s)
 - ⚡ Fun fact: ... i am clinically deppresed :D
 
 <!---
